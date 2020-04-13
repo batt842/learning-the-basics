@@ -306,7 +306,7 @@ Sometimes, however, this sense of isolation, like acid spilling out of a bottle,
   - to gradually remove or reduce the amount of something
   - to make someone feel very worried over a long period of time
 
-I think in my own way I'm aware of this danger- probably through experience- and that's why I've had to constantly keep my body in motion, in some cases pushing myself to the limit, in order to heal the loneliness I feel inside and to put it in perspective.
+I think in my own way I'm aware of this danger- probably through experience- and that's why I've had to constantly keep my body in motion, in some cases pushing myself to the limit, in order to heal the loneliness I feel inside and to _put it in perspective_.
 - put something in(to) perspective
   - to judge or compare something in a sensible way
 
